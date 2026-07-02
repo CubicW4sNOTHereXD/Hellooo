@@ -10,3 +10,5 @@
 [ *I usually don't use pronouns of plural tense unless I talk about all/some of my fictionkins as a collective rather than parts of my own identity, which by itself is a little delusional, admittedly, but we strictly **DON'T** believe in endogenic systems as there needs to have **some form ofsevere childhood trauma for the brain to feel like forming alters is the only way to protect itself.**, to which we do not have that kind of trauma.*
 
 ***DNI: Please for the love of GOD do not interact with me if you're a pedophile, zoophile, necrophile, etc. I also want to avoid spawnists and spawnist supporters in general as I can spiral pretty quickly on rough days. I HATE SPAWNISM (not the people manipulated inside of it though).***
+
+I can be clingy but also very distant too so please be wary of that, I'm sorry :[
