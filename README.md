@@ -1,4 +1,4 @@
-# Hellooo
+# Hellooo Please Read
 :333
 
 [ You can call me anything you wish to, but my favs are uh mayhaps Goob, Kody & Yoku(bo). Oh, you can alzo use whatever character I'm cosplayin as 4 a name!!!!
